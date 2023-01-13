@@ -1,6 +1,8 @@
 # GAGAMBOY.github.io
 
-[My Spotify](https://open.spotify.com/playlist/2a5sllCjTtZhUFl0RHx3xZ?si=727b07711e5547f8)
+[My Spotify!!](https://open.spotify.com/playlist/2a5sllCjTtZhUFl0RHx3xZ?si=727b07711e5547f8)
+
+[Very Entertaining YT Video](https://youtu.be/BtDmkIqD7No)
 
 **Miss ko na sha**
 
