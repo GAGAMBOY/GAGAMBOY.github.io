@@ -2,7 +2,7 @@
 
 [My Spotify](https://open.spotify.com/playlist/2a5sllCjTtZhUFl0RHx3xZ?si=727b07711e5547f8)
 
-**I LOVE YOU BRENT**
+**Miss ko na sha**
 
 ![image](https://user-images.githubusercontent.com/122419149/212207073-50c27070-5ac5-4125-adc2-553eafee4e28.png)
 
