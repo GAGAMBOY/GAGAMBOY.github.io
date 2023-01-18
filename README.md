@@ -6,20 +6,20 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/BtDmkIqD7No" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
-**How to hide a DEAD body😃**
+**How to hide a DEAD body😃** 👆👆
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0xlRvyKsiLs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
-**How to assemble a Gun😋**
+**How to assemble a Gun😋** 👆👆
 <iframe width="560" height="315" src="https://www.youtube.com/embed/K0LLaybEuzA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 **The Purge**
-(Practice Video)
+(Practice Video) 👆👆
 <iframe width="560" height="315" src="https://www.youtube.com/embed/e3l_QKKwico" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
-**How to make Booby traps😍**
+**How to make Booby traps😍** 👆👆
 
 # GOALS!
 
